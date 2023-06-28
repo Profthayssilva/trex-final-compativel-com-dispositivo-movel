@@ -1,0 +1,1 @@
+# trex-final-compativel-com-dispositivo-movel
